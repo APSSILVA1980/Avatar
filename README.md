@@ -1,6 +1,6 @@
 # Avatar
 
-# Título do Projeto Extremamente Aesthetic ;)
+# Título do Projeto 
 
 " Mexa-se, seu tempo é agora!"
 
