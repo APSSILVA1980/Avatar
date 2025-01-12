@@ -20,4 +20,6 @@ Utilizei a pesquisa do google pesquisar a imagem.
 ## 🚀 Resultados
 O vídeo é uma rápida experiÊncia ao mundo das IAs Generativas.
 
+https://studio.d-id.com/share?id=65b5c3f99d50ce829ca021af484c9b25&utm_source=copy
+
 ## 💭 Reflexão (Opcional)
